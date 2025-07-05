@@ -15,6 +15,6 @@
 为了保障观看安全，平台大多采用HTTPS加密技术，确保用户隐私不受侵犯。
 总的来说，提供日本AV免费资源的平台，以其丰富内容、高清画质和安全保障，成为了观众的理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x03 ）</span>
 
 
